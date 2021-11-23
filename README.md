@@ -1,0 +1,2 @@
+# 3D-printed-filament-tube-hedges
+Hedges are groves of transplanted crops. These are subtle to sudden changes in weather conditions. Soil fertility can be a concern. Owing to rising sea levels. These require a more controlled environment. To be negate wind speeds using vortice dissipation. Farmers need a filament hedge this reduces wind speeds. To increase moisture deposition on leafs of plants. This research found optimal conditions for enhanced growth. This increased interstatial sites for stem growth on the plant.
